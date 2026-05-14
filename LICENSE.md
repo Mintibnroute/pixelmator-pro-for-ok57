@@ -1,4 +1,4 @@
-# 
+# Pixelmator Pro for macOS premium Script: AI-assisted design & plugin support offers the most advanced Pixelmator Pro for macOS script, with AI-assisted design and plugin support.
 
 
 
